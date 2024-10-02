@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vanillou39
+- 👋 Hi, I’m @Vanillou39 / @lou_lrbtr
 - 👀 I’m interested in video-games and cinema
 - 🌱 I’m currently learning game design
 - 💞️ I’m looking to collaborate on awesome projects
